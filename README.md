@@ -12,5 +12,6 @@ The Jalwa Game has quickly become one of the most popular colour prediction apps
 
 Jalwa Game Login is quick and hassle-free, ensuring you get into the action instantly. Moreover, depositing money on the Jalwa Game app is safe, secure, and convenient, allowing you to play and win anytime, anywhere.
 
+                               Copyright © 2025 Jalwa Games |All Right Reserved
 
 
